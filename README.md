@@ -1,1 +1,1 @@
-# 22000674_RPractical
+# RPractical
